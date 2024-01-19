@@ -1,4 +1,5 @@
-# bypass-autowithdrawal-bot
+# BYPASS AUTOWITHDRAWAL/SWEEPER BOT
+
 Bypass Any Auto Withdrawal [ Tokens | NFT | Staking | airdrop]
 
 
