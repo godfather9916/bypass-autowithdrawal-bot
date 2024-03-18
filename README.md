@@ -1,6 +1,6 @@
 # BYPASS AUTOWITHDRAWAL/SWEEPER BOT
 
-Bypass Any Auto Withdrawal [ Tokens | NFT | Staking | airdrop]
+Bypass Any Auto Withdrawal [ Tokens | NFT | Staking | airdrop] in any wallet
 
 
 
